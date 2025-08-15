@@ -34,11 +34,6 @@ A linha entre **realidade e ilusão** se torna cada vez mais tênue, levando a u
 
   ![Matrix Revolutions](img/matrix3.jpg)
 
-- Pôster oficial:
-
-  ![Pôster de Matrix Revolutions](https://upload.wikimedia.org/wikipedia/en/3/34/Matrix_Revolutions_ver7.jpg)
-
-
 ---
 
 ## ✅ Conclusão
